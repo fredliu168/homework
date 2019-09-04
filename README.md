@@ -1,6 +1,6 @@
 # homework
 
-老师微信号：wuxiaoru1991
+吴老师微信号：wuxiaoru1991
 
 ### 2019-09-04 星期三
 
