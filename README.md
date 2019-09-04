@@ -4,6 +4,9 @@
 
 [弟子规学习材料](https://www.diziwang.net/pyfy.html)
 
+
+![值日](/static/zhiri.jpeg)
+
 ### 2019-09-04 星期三
 
 今晚语文作业：
