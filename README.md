@@ -2,6 +2,8 @@
 
 吴老师微信号：wuxiaoru1991
 
+[弟子规](https://www.diziwang.net/pyfy.html)
+
 ### 2019-09-04 星期三
 
 今晚语文作业：
